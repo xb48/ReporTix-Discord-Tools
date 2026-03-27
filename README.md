@@ -25,3 +25,4 @@
 **Official Website:** https://reportix.net/ **
 
 **Dominate the Digital Space. ReportTix – Precision. Power. Control.**
+<img width="1919" height="909" alt="image" src="https://github.com/user-attachments/assets/ffa153ea-0d9e-4f14-917d-b2011adb7558" />
