@@ -26,3 +26,4 @@
 
 **Dominate the Digital Space. ReportTix – Precision. Power. Control.**
 <img width="1919" height="909" alt="image" src="https://github.com/user-attachments/assets/ffa153ea-0d9e-4f14-917d-b2011adb7558" />
+<img width="413" height="534" alt="image" src="https://github.com/user-attachments/assets/9a7104f3-5c34-40de-af52-fe1060419d42" />
